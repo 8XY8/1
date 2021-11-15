@@ -1,16 +1,16 @@
 # 相遇最新下载地址（2021年11月15日更新）
 
 ### 点击以下链接进入下载页：
-### [iqay.xyz](http://iqay.xyz)<br> 
-### 主播版下载地址 [762b.xyz](http://762b.xyz)
+### [y5s8.xyz](http://y5s8.xyz)<br> 
+### 主播版下载地址 [ieme.xyz](http://ieme.xyz)
 （观众下载无法使用）
 
 备用观众版下载地址如下<br>          
-iqay.xyz<br>      
-k6tu.xyz<br>       
+c40p.xyz<br>      
+7qb0.xyz<br>       
 
 备用主播版下载地址如下<br>
-762b.xyz<br>    
+v6d0.xyz<br>    
 
 # 相遇回家页简介
 
